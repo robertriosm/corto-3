@@ -4,6 +4,6 @@
 
 ### Roberto Rios, 20979
 
-### LP el crac, 20
+### Luis Pedro Gonzalez, 20008
 
-### Rebecca Smith, 20
+### Rebecca Smith, 20373
